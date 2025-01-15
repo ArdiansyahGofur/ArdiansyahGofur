@@ -1,5 +1,5 @@
 # 💫 About Me:
-My name is Ardiansyah Gofur Nurichsan, and I am passionate about learning web programming and machine learning. I also have a great interest in reading novels, watching movies, and sharing stories. With a positive spirit, I strive to create an inspiring and engaging atmosphere for those around me. I enjoy learning new things that spark curiosity, especially those related to technology, which has become one of my greatest passions.
+My name is Ardiansyah Gofur Nurichsan, and Uzzan :)
 
 
 ## 🌐 Socials:
